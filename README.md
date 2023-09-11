@@ -1,4 +1,4 @@
-Miami me lo confirmó
+Miami me lo confirmó/*
 Gente de Zona
 Puerto Rico me lo regaló
 Marc Anthony
